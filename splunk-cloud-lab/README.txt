@@ -1,0 +1,1 @@
+See kataloog on abimaterjal Splunk Cloud laboris. Järgi kooli GitHubi juhendit sammsammult.
